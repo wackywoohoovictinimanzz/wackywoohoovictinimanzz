@@ -42,6 +42,11 @@ the mayor...
 "zack fair more like UNfair" - random yt title i saw
 </details>
 
+<details>
+    <summary>interests and. stuff</summary>
+ok so these are my interests uhh main ones will be colored and things im lowkey LARPING (/hj) will not... i think
+    $\color{#00AC60}{\text{resident evil, ace attorney, insectarium alternative march (chris.. 😍😍😍), devil may cry}}$
+</details>
 
 <details>
     <summary>hey. click HERE!!!!</summary>
