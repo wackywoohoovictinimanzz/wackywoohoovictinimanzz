@@ -1,16 +1,14 @@
-$\color{#08009c}{\text{hey. its mii. victiniz. im trying to do one of those aesthetic repos where they have special colored text }}$
+$\color{#08009c}{\text{me? gongaga}}$
 
-<div align="left">
-    test
-</div>
+<img width="300" height="300" alt="Untitled185_20261113130355" src="https://github.com/user-attachments/assets/67af2817-4840-4a22-ab47-20e10bb03ad0" />
 
-<div align="right">
-    test2
-</div>
+    no way....
+
+                 he just ate my HAIR!!
+
 
 <details>
-    <summary>test click</summary>
-    test
+    <summary>hey. click HERE!!!!</summary>
+            https://pronouns.cc/@Robecca-The_Steam
 </details>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=test;test2)](https://git.io/typing-svg)
