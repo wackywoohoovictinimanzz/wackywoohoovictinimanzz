@@ -79,3 +79,5 @@ i don't really like freaky jokes so uhhh don't do that pls thanks
 i am VERY nerdy about emulation its not FUNNY
 
 i don't really have a dni... i just block people if i don't really like them or they make me uncomfortable or another reason uhh i forgot
+
+DON'T TOUCH UNLESS OOMF!!!!!!!!! also don't copy me ponies 🏴‍☠️🏴‍☠️
