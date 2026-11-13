@@ -7,8 +7,8 @@ $\color{#08009c}{\text{YOOOOOOO!!!!!!!! IM VICTINIZ!!!!! I FINALLY FIGURED OUT H
 
 
 
+
 <details>
     <summary>hey. click HERE!!!!</summary>
             https://pronouns.cc/@Robecca-The_Steam
 </details>
-
