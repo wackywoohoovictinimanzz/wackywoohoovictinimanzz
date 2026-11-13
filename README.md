@@ -54,8 +54,12 @@ ok so these are my interests uhh main ones will be colored and things im lowkey 
 </details>
 
 <details>
-    <summary>hey. click HERE!!!!</summary>
-            https://pronouns.cc/@Robecca-The_Steam
+    <summary>hey. check THIS OUT!!!</summary>
+https://pronouns.cc/@Robecca-The_Steam
+    
+https://www.youtube.com/@Victini-Z
+    
+INACTIVE!! → https://tiktok.com/@victini_..z
 </details>
 
 <img width="300" height="300" alt="Untitled185_20261113170550" src="https://github.com/user-attachments/assets/0105b07f-5d83-4356-8b0d-b10870f79683" />
