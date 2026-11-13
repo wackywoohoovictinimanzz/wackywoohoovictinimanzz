@@ -68,7 +68,7 @@ https://victiniz.straw.page
 
 ## *OTHER STUFF!!!!!!*
 
-you can usually find mii in gtcs, hangouts and $\color{#00AC60}{\text{occasionally rps if my one of my oomfs are there (only spec tho)}}$
+you can usually find mii in gtcs, the ace attorney area, hangouts and $\color{#00AC60}{\text{occasionally rps if my one of my oomfs are there (only spec tho)}}$
 
 <img width="300" height="300" alt="Untitled185_20261113170503" src="https://github.com/user-attachments/assets/34a2e49a-35cd-4e0a-8166-c6be377d2031" />
 
