@@ -45,7 +45,8 @@ the mayor...
 <details>
     <summary>interests and. stuff</summary>
 ok so these are my interests uhh main ones will be colored and things im lowkey LARPING (/hj) will not... i think
-    $\color{#00AC60}{\text{resident evil, ace attorney, insectarium alternative march (chris.. 😍😍😍), devil may cry}}$
+    $\color{#00AC60}{\text{resident evil, ace attorney, insectarium alternative march (chris.. 😍😍😍), devil may cry, monster high,}}$ 
+    $\color{#00AC60}{\text{fire emblem,}}$, kingdom hearts, uhhh idk
 </details>
 
 <details>
