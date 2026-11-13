@@ -60,6 +60,8 @@ https://pronouns.cc/@Robecca-The_Steam
 https://www.youtube.com/@Victini-Z
     
 INACTIVE!! → https://tiktok.com/@victini_..z
+
+https://victiniz.straw.page
 </details>
 
 <img width="300" height="300" alt="Untitled185_20261113170550" src="https://github.com/user-attachments/assets/0105b07f-5d83-4356-8b0d-b10870f79683" />
