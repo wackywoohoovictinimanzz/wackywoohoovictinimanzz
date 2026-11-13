@@ -53,3 +53,9 @@ ok so these are my interests uhh main ones will be colored and things im lowkey 
     <summary>hey. click HERE!!!!</summary>
             https://pronouns.cc/@Robecca-The_Steam
 </details>
+
+## *OTHER STUFF!!!!!!*
+
+you can usually find mii in gtcs, hangouts and $\color{#00AC60}{\text{occasionally rps if my one of my oomfs are there (only spec tho)}}$
+
+## $\color{#00AC60}{\text{placeholder}}$
