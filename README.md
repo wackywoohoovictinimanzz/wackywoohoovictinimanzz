@@ -5,7 +5,7 @@ $\color{#08009c}{\text{me? gongaga}}$
 $\color{#08009c}{\text{YOOOOOOO!!!!!!!! IM VICTINIZ!!!!! I FINALLY FIGURED OUT HOW TO MAKE ONE OF THOSE FANCY}}$
 $\color{#08009c}{\text{REPOS!!!!!!}}$
 
-
+$\color{#08009c}{\text{i made this for the pixel pony game uhhh anyway info about that here}}$
 
 
 <details>
