@@ -6,6 +6,9 @@ $\color{#08009c}{\text{YOOOOOOO!!!!!!!! IM VICTINIZ!!!!! I FINALLY FIGURED OUT H
 $\color{#08009c}{\text{OF THOSE FANCY REPOS!!!!!!}}$
 
 $\color{#08009c}{\text{i made this for the pixel pony game uhhh anyway info about that here}}$
+
+<img width="300" height="300" alt="Untitled185_20261113165938" src="https://github.com/user-attachments/assets/35c0faf9-f230-45d3-858e-58c196a97291" />
+
 <details>
     <summary>pony game info thing</summary>
         i usually play as skins/characters i like
@@ -42,6 +45,7 @@ the mayor...
 "zack fair more like UNfair" - random yt title i saw
 </details>
 
+
 <details>
     <summary>interests and. stuff</summary>
 ok so these are my interests uhh main ones will be colored and things im lowkey LARPING (/hj) will not... i think
@@ -54,9 +58,13 @@ ok so these are my interests uhh main ones will be colored and things im lowkey 
             https://pronouns.cc/@Robecca-The_Steam
 </details>
 
+<img width="300" height="300" alt="Untitled185_20261113170550" src="https://github.com/user-attachments/assets/0105b07f-5d83-4356-8b0d-b10870f79683" />
+
 ## *OTHER STUFF!!!!!!*
 
 you can usually find mii in gtcs, hangouts and $\color{#00AC60}{\text{occasionally rps if my one of my oomfs are there (only spec tho)}}$
+
+<img width="300" height="300" alt="Untitled185_20261113170503" src="https://github.com/user-attachments/assets/34a2e49a-35cd-4e0a-8166-c6be377d2031" />
 
 ## $\color{#00AC60}{\text{B4 YOU INTERACT...........}}$
 
