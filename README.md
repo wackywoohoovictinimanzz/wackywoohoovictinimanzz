@@ -12,3 +12,5 @@ $\color{#08009c}{\text{hey. its mii. victiniz. im trying to do one of those aest
     <summary>test click</summary>
     test
 </details>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=test;test2)](https://git.io/typing-svg)
