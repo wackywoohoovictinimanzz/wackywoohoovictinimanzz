@@ -58,4 +58,10 @@ ok so these are my interests uhh main ones will be colored and things im lowkey 
 
 you can usually find mii in gtcs, hangouts and $\color{#00AC60}{\text{occasionally rps if my one of my oomfs are there (only spec tho)}}$
 
-## $\color{#00AC60}{\text{placeholder}}$
+## $\color{#00AC60}{\text{B4 YOU INTERACT...........}}$
+
+i don't really like freaky jokes so uhhh don't do that pls thanks
+
+i am VERY nerdy about emulation its not FUNNY
+
+i don't really have a dni... i just block people if i don't really like them or they make me uncomfortable or another reason uhh i forgot
