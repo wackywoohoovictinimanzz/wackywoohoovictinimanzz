@@ -72,6 +72,8 @@ you can usually find mii in gtcs, the ace attorney area, hangouts and $\color{#0
 
 im also VERY open to interacting...... ooooo you wanna int w mii SOOOOO bad..../j if you see mii pls say hi. pls
 
+i also host things sometimes!! mostly gtcs because my hangout map is a heavy wip.......
+
 <img width="300" height="300" alt="Untitled185_20261113170503" src="https://github.com/user-attachments/assets/34a2e49a-35cd-4e0a-8166-c6be377d2031" />
 
 ## $\color{#00AC60}{\text{B4 YOU INTERACT...........}}$
